@@ -1,0 +1,2 @@
+# 03bce647-8b23-44fd-a729-076845080166-hero-2
+Hero section variant 2 for 03bce647-8b23-44fd-a729-076845080166
